@@ -1,4 +1,4 @@
-Its Friday
+Its a great day
 
  
  
