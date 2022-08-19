@@ -1,4 +1,4 @@
-Happy Friday
+Happy Friday its a great day 
 
  
  
