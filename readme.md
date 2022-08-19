@@ -1,4 +1,4 @@
-Its a great day
+Friday Fun
 
  
  
