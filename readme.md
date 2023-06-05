@@ -1,4 +1,4 @@
-Friday Fun
+Monday is not fun
 
  
  
