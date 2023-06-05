@@ -1,4 +1,4 @@
-Monday is not fun
+Monday is cool
 
  
  
