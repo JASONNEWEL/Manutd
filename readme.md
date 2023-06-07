@@ -1,4 +1,4 @@
-Monday is cool
+Monday is ok
 
  
  
